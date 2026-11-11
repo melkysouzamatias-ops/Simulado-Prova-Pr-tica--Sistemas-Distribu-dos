@@ -1,0 +1,1 @@
+# Simulado-Prova-Pr-tica--Sistemas-Distribu-dos
